@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @EZTTU
+- 👀 I’m interested in java ,gym and basketball
+- 🌱 I’m currently learning java
+- 💞️ I’m looking to collaborate on youtube
+- 📫 How to reach me 15593853179@163.com
